@@ -1,2 +1,1 @@
-## Projet_Etudians_ENSPY DOMI ou AURA (Yaounde dans un premier temps!)
-
+## Plateforme innovante de gestion immobilière et de promotion artistique - Projet ENSPY
